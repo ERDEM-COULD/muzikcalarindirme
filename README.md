@@ -1,3 +1,3 @@
 # Müzik Çalar İndirme Butonu
-[APK dosyasını indir](https://github.com/KULLANICI/REPO/releases/download/VERSIYON/dosya.apk)
+[APK Dosyasını Mega'dan İndir](https://mega.nz/file/gAQyBSzK#PTSbwrgHK43CH6qeoVKL7L34E47Y6ls7M46SXTyD7YQ)
 
